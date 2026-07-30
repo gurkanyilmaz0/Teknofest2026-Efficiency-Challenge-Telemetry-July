@@ -1,0 +1,1 @@
+# Teknofest2026-Efficiency-Challenge-Telemetry-July
